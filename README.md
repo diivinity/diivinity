@@ -1,5 +1,8 @@
-HI!! HELLO!! SOME UPDATES I DID ON MY GITHUB WILL BE HEREEEE
+almost finished my page! heres what everythings about it!
 ---------------
-        　　　　　 Upd [02/14 12 AM]
-              braaaand neeewwwwwwww strawpaggeeeeeeeee go check it out, theres
-              my semi intro, u can also draw and message stuff :)
+    Atabook: send mee nice messagez!
+    ⭐️ Strawpage: draw something for me! send messages anonymously, dni and interests too!
+    Pronouns Page: what you can call me, my prns, etc ^_^
+
+    the star ⭐️ indicates my personal favorite, also which one to check first :)
+                   it is not required but recommended by me!
