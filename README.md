@@ -5,4 +5,4 @@ PLEASEEE SIGN MY ATABOOK ITS SO EMPTYYY
     Pronouns Page: what you can call me, my prns, etc ^_^
     NO I DONT HAVE A RENTRY🤑🤑🤑🤑
     YES I HATE MAKING RENTRIES 🤑🤑
-                   it is not required but recommended by me!
+        
