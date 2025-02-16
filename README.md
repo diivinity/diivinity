@@ -1,4 +1,4 @@
-almost finished my page! heres what everythings about it!
+PLEASEEE SIGN MY ATABOOK ITS SO EMPTYYY
 ---------------
     Atabook: send mee nice messagez!
     ⭐️ Strawpage: draw something for me! send messages anonymously, dni and interests too!
