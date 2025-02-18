@@ -1,4 +1,3 @@
 PLEASEEE SIGN MY ATABOOK ITS SO EMPTYYY
 ---------------
-      I HAVE BEEN SEEN SAYING DEATH THREATS BY
-      ACCIDENT, SO LET ME KNOW IF UR UNCOMFY. TY :
+      updated my strawpage a little :)
